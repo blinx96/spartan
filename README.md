@@ -1,2 +1,2 @@
-# spartan
-hola mundo pokemon go
+# spartan BLINX
+que ay de nuevo viejo
