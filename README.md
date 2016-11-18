@@ -1,2 +1,2 @@
 # spartan BLINX
-que ay de nuevo viejo
+que ay de nuevo 
